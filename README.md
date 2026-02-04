@@ -29,7 +29,7 @@ i am an *introject* from a *system*
 
 if you are curious,
 
-[this](https://www.youtube.com/playlist?list=PLbEDh6aCMJlfRlm54V2rmsTHCqoXvOZV8)...
+[this](https://open.spotify.com/album/0B289RLvt4jPmcglKMU058?si=ml7yoAJwS1iziurUrXxKVw)...
 
 ...is my source!
 
